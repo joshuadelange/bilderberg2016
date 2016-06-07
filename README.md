@@ -2,6 +2,8 @@
 
 We were curious who the attendees of the infamous Bilderberg meetings were for this year and ran a few numbers.
 
+([Cinnamon Twitter thread](https://twitter.com/withcinnamoncom/status/740190725392982016))
+
 ## Attendees by nationality
 Wew US is present.
 
